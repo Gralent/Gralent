@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gralent
-- 👀 I’m interested in insteresting thing
+- 👀 I’m interested in interesting thing
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on nothing
 
